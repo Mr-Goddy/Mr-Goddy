@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...Kingrasta
 - ⚡ Fun fact: ...am idle all the time 
 
-<!---
+<!---am ready to work at any faculty 
 Mr-Goddy/Mr-Goddy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
